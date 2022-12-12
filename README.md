@@ -1,2 +1,3 @@
-# iptv-repository-slovak-czech
-IPTV .m3u8 free!!!
+# Zásady používania ilegálnej IPTV zdarma.
+1. Nezdieľať
+2. Sledovať
